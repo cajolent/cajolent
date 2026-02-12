@@ -1,6 +1,6 @@
 $${\textsf{\color{#D0B9A1}“ Oh my little soldier boy . . .“}}$$
 <p align="center">
-  <img src="https://i.postimg.cc/fLKyCBfP/Untitled2244-20260212210204.png" deputy ace" width="600"/>
+  <img src="https://i.postimg.cc/fLKyCBfP/Untitled2244-20260212210204.png" deputy ace" width="500"/>
 </p>
 
 

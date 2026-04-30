@@ -23,8 +23,6 @@
 https://github.com/user-attachments/assets/ea6dccb0-afa5-4d76-899b-91baa54515ed
 
 
-ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ  <a href="https://archiveofourown.org/works/80722706?view_full_work=true">𓂋</p></a>
  
 </p>
 

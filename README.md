@@ -1,4 +1,4 @@
-<p align="center"> $${\textsf{\color{#395271}゛}}$$ $${\textsf{\color{#DEB053}summerㅤ}}$$ ${\textsf{\color{#395271}greetedㅤeggchanㅤ,ㅤsomehowㅤ𓈒ㅤ〞}}$</p>
+<p align="center"> $${\textsf{\color{#395271}゛}}$$ $${\textsf{\color{#DEB053}summerㅤ}}$$ ${\textsf{\color{#395271}greetedㅤeggchanㅤˏㅤsomehowㅤ𓈒ㅤ〞}}$</p>
 ㅤ
 <p align="center">
   <img src="https://i.postimg.cc/SR8gyBVH/Untitled2323-20260501004502.png" deputy ace" width="500"/>

@@ -42,3 +42,5 @@ https://github.com/user-attachments/assets/05878c47-4939-489e-97ec-5da34ebb2492
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
  
+<p align="center"> $${\textsf{\color{#395271}artㅤcredsㅤ;ㅤ@ydmnnn}}$$‎
+</p>
